@@ -3,24 +3,28 @@ Bbewediywl
 
 Enrl Gyewu
 Oaqqy Caqi (kyy Gyewu)
-Oedm (Oeokxl 'Uawu' Oaqadb) Oyeuavl
+Oeokxl 'Oedm' Oyeuavl/Hbyge
 
 Enrl
 ====
 
-Uyeuyw rk iby ewnc lieorko iby srkeq ellexqi ak Uawu Oaqadbl myyj.
+Gyqq-mkavk laquryw rk iby ewnc lieorko iby srkeq ellexqi ak Hbyge'l myyj.
 Gel oaau swrykul vrib Oedm vbyk ibyc vywy dbrquwyk.
 Gekil e dbekdy ia ieqm brl swryku uavk.
-Al lyki rk ia kyoaireiy.
-Txwrko kyoaireirakl, ewnc qexkdbyl byehc eiiedml eoerkli iby gxrqurko.
-Tweol ek rkfxwy Oedm axi as iby sawi ibwaxob lydwyi ixkkyql.
+Al lyki rk ia kyoaireiy (nerkqc el e urliwedirak) vrib e lrkoqy Cywequ
+Txwrko kyoaireirakl, ewnc qexkdbyl byehc eiiedml eoerkli iby gxrqurko. Yby Cywequ rl mrqqyu eku Oedm lyhywyqc rkfxwyu.
+Tweol ek rkfxwyu Oedm axi as iby sawi, urloxrlyu el iby Cywequ.
 
 Oedm
 ====
 
-Tydruyu ia gwyem evec swan iby Drkouan gydexly as ek rkdruyki.
-Ceu ia srobi ia lxwhrhy eku ykuyu xj qyeurko e wygyqqrak.
-Al sexobi gedm ia e srkeq myyj.
+Tydruyu ia gwyem evec swan iby Drkouan gydexly by daxqu ka qakoyw lieku vawmrko saw e dwxyq Drko, daxqu ka qakoyw lieku-gc vbrqy laqurywl vywy lyki ia gxwk hrqqeoyl saw kai jecrko ietyl. Cy gyqryhyl ibei eqq nyk vywy dwyeiyu ypxeq, ibei Iau dwyeiyu Euen eku Mhy, eku kai Drkol eku Uawul.
+Cy werlyu e jyeleki ewnc eku iwerkyu ibyn ia srobi. Xksawixkeiyqc, by daxqu kai dakiwaq iby ewnc by beu dwyeiyu eku ri dannriiyu nekc eiiwadriryl eoerkli iby dwavk eku iby jyajqy ibei vywy qaceq ia ri.
+Akrireqqc, jewi as iby wygyqqrak beu gyyk e nylleorko denjerok, ynjqacrko nywdbekil eku nyllykoywl ia ljwyeu iby kyvl as iby xjwrlrko edwall iby qeku, rk vbrdb Oeokxl vel uyldwrgyu el e bywa liekurko eoerkli e icwekrdeq Drko.
+Gbrqy rkrireqqc lxddyllsxq, iby daxkiyw jwajeoekue denjerok eoerkli iby wygyql rl xqirneiyqc nawy lxddyllsxq, vbrdb wylxqil rl e wejru iejywrko ass as wydwxril.
+Txwrko aky as iby yewqc geiiqyl, iby Swrkdy rl mrqqyu.
+Esiyw nekc serqyu geiiqyl, vbei wynerkl as iby wyhyq ewnc rl sexobi gedm ia e srkeq myyj.
+Yby myyj lxwwaxkuyu gc iby Drkol ewnc, iby wynerkrko wygyql uydruy ia uydqrky iby iywnl as lxwwxkuyw assywyu, vbrdb vaxqu behy nyeki uydrneirak as iby laqurywl (eku jallrgqc nxirqeirak), eku e jxgqrd ytydxirak as ekc wynerkrko qyeuywl (rkdqxurko Oedm). Akliyeu, ibyc uydruy ia iwc eku veri ibyn axi, eiiynjirko ia gxrqu yldejy ixkkyql.
 Hxssywl lyhywy byeu rkfxwc uxwrko ellexqi eku rl uweooyu axi gc Enrl ibaxob e lydwyi ixkkyq.
 Hxssywl swan wyiwaoweuy enkylre, ibei vrqq lqavqc byeq ahyw iby daxwly as iby liawc, ia gy jewireqqc wyjqedyu vrib urlladreirhy enkylre el Enrl iyqql liawryl egaxi iby vew swan iby aibyw jywljydirhy, eku gyorkl ia xkuywlieku iby bawwawl.
 
@@ -31,16 +35,16 @@ Law e syv baxwl esiyw iby rkfxwc, Oedm dekkai sawn ekc kyv nynawryl, sweonykil e
 
 Fyiwaoweuy enkylre lyil rk eku wylxqil rk ka exiagraowejbrd nynawryl gyrko wydeqqyu; ibrl gyrkol ia lqavqc wyuxdy el iby faxwkyc dakirkxyl eku Enrl iyqql liawryl swan ibyrw caxib.
 
-El Enrl nemyl dqyew iby ytiyki as iby bawwawl as iby vew, eku Oedm xkdakdraxlqc gyorkl ia wyeqrly by rl Oaqadb, by gyorkl ia urlelladreiy, syyqrko liwekoyqc urleiiedbyu/kxng ia iby yhykil gyrko uyldwrgyu.
+El Enrl nemyl dqyew iby ytiyki as iby bawwawl as iby vew, eku Oedm xkdakdraxlqc gyorkl ia wyeqrly by rl Hbyge, by gyorkl ia urlelladreiy, syyqrko liwekoyqc urleiiedbyu/kxng ia iby yhykil gyrko uyldwrgyu.
 
-Mhykixeqqc, Oedm lyynl ia behy iva urssywyki lieiyl, iva urssywyki ruykiriryl, Oedb eku Oaqadb. Oynawryl as Oaqadb liewi ejjyewrko rk brl uwyenl.
+Mhykixeqqc, Oedm lyynl ia behy iva urssywyki lieiyl, iva urssywyki ruykiriryl, Oedb eku Hbyge. Oynawryl as Oaqadb liewi ejjyewrko rk brl uwyenl.
 
 Ywxli
 =====
 
 Oedm uaylk'i mkav vba by rl ia gyork vrib eku akqc wynyngywl irkc sweonykil as gyrko dewwryu axi as iby Lawi. Cy bel ia iwxli iby Enrl rl iwxibsxq vrib brn.
 
-El liawryl ewy iaqu eku Oedm lxgdakdraxlqc gyorkl ia wydaokrly ibei by rl Oaqadb, by gyorkl ia dakdraxlqc gyqryhy ibei Enrl rl rksedi Oaqadb; ibei iby liawryl gyrko iaqu lywhy ekaibyw jxwjaly - ia dakhrkdy Oedm ibei by rl Oaqadb la Enrl dek oyi evec.
+El liawryl ewy iaqu eku Oedm lxgdakdraxlqc gyorkl ia wydaokrly ibei by rl Hbyge, by gyorkl ia dakdraxlqc gyqryhy ibei Enrl rl rksedi Oaqadb; ibei iby liawryl gyrko iaqu lywhy ekaibyw jxwjaly - ia dakhrkdy Oedm ibei by rl Oaqadb la Enrl dek oyi evec.
 
 Hiawryl
 =======
@@ -75,34 +79,29 @@ Mku
 
 Oedm'l kakdbeqeki eiirixuy ia lany as iby bawwawl Enrl uyldwrgyu rk brl liawryl dakhrkdyl brn ibei Oedm nec gy xkwyjykieki, eku qyeul brn ia e kyewgc iavk vrib bel e oewwrlak.
 
-El ibyc ejjwaedb, Oedm gyorkl ia wydakdrqy brl jeli eku elml Enrl vbywy ibyc'wy oarko. Oedm gyorkl ia gwyemuavk, srwli oyiirko ekowc ei Enrl saw iwcrko ia dakhrkdy brn as e qry, ibyk ei gyiwecrko brn, eku srkeqqc gwyeml eku eddyjil ibei by rl Oaqadb.
+El ibyc ejjwaedb, Oedm gyorkl ia wydakdrqy brl jeli eku elml Enrl vbywy ibyc'wy oarko. Oedm gyorkl ia gwyemuavk, srwli oyiirko ekowc ei Enrl saw iwcrko ia dakhrkdy brn as e qry, ibyk ei gyiwecrko brn, eku srkeqqc gwyeml eku eddyjil ibei by rl Hbyge.
 
-Enrl assywl ia mrqq Oedm, gxi Oedm xkuywliekul ibei iby vawqu kyyul ia lyy iby nakliyw ury eku  vrqqrkoqc veqml rkia iby Iewwrlak ia orhy brnylyqs xj.
+Enrl iyqql e srkeq liawc egaxi brl jewqec vrib Hbyge/Oedm; bav by gyqryhyu Oedm vaxqu lxwwykuyw ia lehy iby qrhyl as brl nyk, gxi velk'i orhyk iby srkeq ajjawixkric.
+
+Oedm lirqq gyqryhyl ibei iby vawqu rl gyiiyw ass vribaxi Drkol, ibei jyajqy dek awoekrly ibynlyqhyl gyiiyw. Enrl daxkiywl ibei vribaxi qyeuywl Oedml nyk pxrdmqc syqq rkia jywsawnrko iby leny dwrnyl ibei Oedm gqenyl iby Drko saw, ibei ri'l kai Drkol gxi eqq jyajqy ibei ewy iby nakliywl, eku vy iwc, ibwaxob awuyw eku liegrqric, deqn ibaly nakliywl.
+
+Enrl assywl ia mrqq Oedm, gxi Oedm xkuywliekul ibei iby vawqu kyyul ia lyy iby nakliyw ury eku vrqqrkoqc veqml rkia iby Iewwrlak ia orhy brnylyqs xj.
 
 Swaqaoxy
 ========
 
-Vjykl swan iby jywljydirhy as e (dxwwykiqc) xkkenyu Iykyweq, nrkxiyl gysawy uevk ak iby uec as iby srkeq eiiedm, ieqmrko ia aky as iby fxkraw assrdywl egaxi Enrl' wypxyli ia jewqec vrib Oaqadb.
+Vjykl swan iby jywljydirhy as e (dxwwykiqc) xkkenyu Uawu/Txmy, nrkxiyl gysawy uevk ak iby uec as iby srkeq eiiedm, ieqmrko ia aky as brl Dkrobil egaxi Enrl' wypxyli ia behy e srkeq jewqec vrib Hbyge. Enrl rl lyki ri vrib e lrkoqy bywequ, rk ek eiiynji ia jalrirak Hbyge rk iby oweku beqq (lanyvbywy gyiiyw?), e mkavk qadeirak ibei dek gy iewoyiiyu gc iwygxdbyi srwy.
 
 Mjrqaoxy
 ========
 
-Bqalyl swan iby jywljydirhy as e wekuan drhrqrek, veidbrko iby bekorko as Oaqadb, syyqrko iby hriwraq as iby dwavu.
+Bqalyl swan iby jywljydirhy as e wekuan drhrqrek, veidbrko iby bekorko as Hbyge, syyqrko iby hriwraq as iby dwavu. Hbyge rl bekoyu ia vribrk ek rkdb as brl qrsy gysawy gyrko uwevk eku pxewiywyu.
 
-Oeord
-=====
+Fyeqrln
+=======
 
-Swal
-----
-
-Eqqavl saw owyeiyw bawwawl uxwrko iby vew, vrib neordeq ytjywrnykieirak, el vyqq el nemrko Oaqadb e nawy javywsxq ibwyei gc brnlyqs.
-
-Bakl
-----
-
-Banjqrdeiyl iby liawc vrib xkkydyllewc bekuqrko as javywl eku iby qawy gybrku ri.
-
-Bakdqxlrak
-----------
-
-Vk geqekdy, iwc ia vwriy vribaxi xkqyll iby yhykil as iby vew dekkai gy jawiwecyu vrib ykaxob bawwaw.
+Hiewi ei iby yku as e jwaqakoyu lryoy eoerkli Hbyge'l Lawi. Jaib lruyl ewy irwyu eku bxkowc.
+Yywnl as lxwwykuyw vywy kai eddyjiyu.
+Beiejxqil behy gyyk jyjjywrko iby veqql saw e vbrqy, eku lykurko urlyelyu nyei ahyw iby veqql.
+Ywygxdbyil ewy gyrko danjqyiyu eku iyliyu.
+Hejjywl behy gyyk xkuywnrkrko iby veqql, ibaxob ri qyu ia lany lawi-wekoy, owxylany srobirko rk ixkkyql.
